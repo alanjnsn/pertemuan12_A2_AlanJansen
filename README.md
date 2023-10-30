@@ -1,0 +1,1 @@
+# pertemuan12_A2_AlanJansen
